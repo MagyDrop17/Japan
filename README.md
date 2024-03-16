@@ -1,16 +1,16 @@
 # Japan
 
 Cosas básicas antes de japon:
-* QR immigración. Visiti Japan Web
+* QR immigración. Visitar Japan Web
 * Llevar efectivo (Bastante)
 * Cuenta en Revolut
 * Tarjeta Suica o Pasmo
 * Esim (Airlo, airalo)
-* Pasta de dientes i desodorante
+* Pasta de dientes y desodorante. No llevar jabon.
 * Airbnb o hotel. 
-* Gallycat
-* Sello Fuji
-* Sello Prefecturas
+* Gallycat. Foodracks
+* Sello Fuji y Prefecturas
+* Studio Ghibli, Naruto park, Universal (Mario).
 
 
 
@@ -34,7 +34,7 @@ Ghibli park
 * 1  - Kyoto
 Arashiyama, kichi kichi umurice
 * 2  - Kyoto Nara
-* 3  - Osaka
+* 3  - Osaka (Namba nichirai bldg)
 * 4  - Osaka 
 * 5  - Osaka 
 * 6  - Osaka 
