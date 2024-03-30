@@ -23,10 +23,9 @@ Dias defenitivos con sus descripciones aproximadas de que se harà.
 * 23 - Tokyo 
 * 24 - Tokyo 
 * 25 - Tokyo 
-* 26 - Kanazawa
-Samurai
-* 27 - Shirakawa-go -Takayama (noche)
-* 28 - (Se decide allí) 
+* 26 - Nagano snow monkey park
+* 27 - Kanazawa Samurai
+* 28 - Shirakawa-go -Takayama (noche)
 * 29 - Nagoya 
 * 30 - Nagoya
 Ghibli park
